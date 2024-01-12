@@ -1,7 +1,7 @@
 Hey there 👋👋
 
 
-my name is ADONI GHOUSIA ZEESHAN
+ I am Afroze Mohammad,
 
 
 your are heartly welcomed to my data set analysis!!
